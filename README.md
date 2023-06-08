@@ -1,0 +1,1 @@
+# seijitateishi.github.io
